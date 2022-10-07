@@ -50,5 +50,23 @@ Notes:
 
 ## What do we listen for?
 * Understanding the psychology of communication toward building trust
+* Every time you engage in a coversation people have one question:
+  * Are you making this about yourself, or listening to me?
+  * Are you having a conversation with yourself about what we are talking about?
 * 
+
+## TRUST is the most important thing
+Using the stage metaphore: You are the lead on the stage of your life
+* Co-existance Trust - trust just enough to live in society, no accountability from the world
+* Transactional Trust - When I need to exchange value with another, commodity-level exchange trust, buy-sell
+* Quality Exchange Trust - High-end transactions ( expensive res
+* Service-based Trust - Trusting another to act as I need them to, be a supporting actor in 'my movie'
+  * Have an impactful life, __to have people come on their stage__  (Rather than trying to pull others onto your stage)
+  * Freedom to act as we will
+
+We listen to get on their stage, to earn a part in their play
+* Every time we intract with another, the frist thing they are trying to figure out are:
+  * Is this person gonna make it about them or about me
+
+
 
