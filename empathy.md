@@ -32,12 +32,23 @@ Notes:
 
 
 ## Categories of Listening Distractions
-* Immediate non-bias distraction 
+1. Immediate non-bias distraction 
   * Remove environmental distractions, Cloths fit, phone
-* Personal non-bias distraction
+2. Personal non-bias distraction
   * Things in your life that you are considering
   * Big meeting, sick family member, child in school
-* Lack of topic familiarity
+3. Lack of topic familiarity
+  * Jump onto terms we don't know
+4. Our bias about the person we are listning to
+  * Negative bias, some really earn it
+  * We filter their words
+5. Our goals, our objectives, our adjenda for the conversation
+  * Are we staying on point
+  * Are they dragging us off-path
+6. Thinking about what we are going to say next
   * 
 
+## What do we listen for?
+* Understanding the psychology of communication toward building trust
+* 
 
