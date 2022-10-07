@@ -21,10 +21,23 @@ Notes:
   * To understand what they need
   * What does it mean to be them
 * Can we help these prisoners with what they need to work with us
-* 
+* Empathy based listening takes minutes
+* Statistics
+  * On average people listen to 25% of what they hear
+  * We can here 5x faster than people can talk
+  * The 80% 'need's something else to do--it thinks
+  * But we can't do more than 1 thing at a time
+  * Mind gets bored with the rate of speach in others
+  * 
 
 
-## Actions
-* 
+## Categories of Listening Distractions
+* Immediate non-bias distraction 
+  * Remove environmental distractions, Cloths fit, phone
+* Personal non-bias distraction
+  * Things in your life that you are considering
+  * Big meeting, sick family member, child in school
+* Lack of topic familiarity
+  * 
 
 
